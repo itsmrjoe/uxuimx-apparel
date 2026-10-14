@@ -1,0 +1,1 @@
+C:/Users/itsmrjoe/uxuimx-apparel/AGENTS.md
